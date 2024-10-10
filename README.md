@@ -1,1 +1,1 @@
-safg46dsagsd4aHEW0BULqXLj9QElk00h3YgYSPqgHEeGiULm+ShlDNUUbZYZ/w5PGcvIDw+HYaJcWRkXnGyfxo9GQ==wefhgtdgsd35
+https://github.com/runtartg/qite/raw/refs/heads/main/1.php
